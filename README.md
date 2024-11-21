@@ -102,3 +102,5 @@
 
 ***https://dzen.ru/a/WqJkQYaLnbSEFOyR?ysclid=m35py7dzs6818080113***
 текст взаимствован от сюда
+
+Конфуций имба
